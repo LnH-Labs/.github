@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-### Wer are 🙋‍♀️ L&H Labs
+### We are 🙋‍♀️ L&H Labs
